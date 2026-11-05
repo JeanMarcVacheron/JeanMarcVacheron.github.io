@@ -5,3 +5,5 @@ The next million dollar papers or why cows win over the market.
 A Publication by Jean Marc Vacheron all All rights reserved by the owner, author, and publisher of this website, working under the pseudonym Jean Marc Vacheron. 
 If you wish to use any content in a commercial context, please contact us at the following email address: vacheron.business@gmail.com
 
+Intelligence as a Credit Structure: 
+https://drive.google.com/file/d/1f-0l1lMsB272UIlvwJAM-maZzw2BrgOU/view?usp=sharing
